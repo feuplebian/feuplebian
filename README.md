@@ -1,1 +1,1 @@
-Privacy is my thing :wink:
+Privacy is a precondition of liberty.
